@@ -1,4 +1,4 @@
-- 👋 Hi, I’m PHD Candidate
+- 👋 Hi, I’m a Ph.D. Candidate
 
 - 👨‍🎓 Hi! My name is Arunmozhi. I was born in Vellore, India and now I’m a Ph.D Candidate in Industrial Engineering from the School of Mechanical Engineering, VIT University in Vellore, India. I completed my Master's Degree in Industrial Engineering.
 
